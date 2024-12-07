@@ -14,7 +14,9 @@ Google map: https://maps.app.goo.gl/a18QwQbYE3YcxBrz5
 
 Website: https://tonpucachnhiet.vn/
 
-[https://tonpucachnhiet.vn/danh-muc-san-pham/cua-panel/](Cửa panel) là một loại sản phẩm được tạo thành từ chất liệu chính là tấm sandwich panel. Loại cửa này được cung cấp trên dây chuyền công nghệ tân tiến nhất bây giờ. không những thế sản phẩm này có tất cả loại khác nhau, khác về thiết kế và kích thước… Sản phẩm sẽ được bề ngoài theo nhu cầu của khách hàng để phù thống nhất mang Công trình của khách hàng.
+(Cửa panel)[https://tonpucachnhiet.vn/danh-muc-san-pham/cua-panel/] là một loại sản phẩm được tạo thành từ chất liệu chính là tấm sandwich panel. Loại cửa này được cung cấp trên dây chuyền công nghệ tân tiến nhất bây giờ. không những thế sản phẩm này có tất cả loại khác nhau, khác về thiết kế và kích thước… Sản phẩm sẽ được bề ngoài theo nhu cầu của khách hàng để phù thống nhất mang Công trình của khách hàng.
+
+[Cửa panel](https://tonpucachnhiet.vn/danh-muc-san-pham/cua-panel/)
 
 [https://tonpucachnhiet.vn/danh-muc-san-pham/tam-lay-sang-polycarbonate/](Tấm lấy sáng polycarbonate) thực chất là sản phẩm sản xuất từ loại nhựa cùng tên. Polycarbonate bản chất là polymer nhựa nhiệt dẻo, một loại nhựa tổng hợp sở hữu cấu trúc những phân tử polymer liên kết khôn cùng chặt chẽ vỡi nhau qua hàng ngũ carbonate. Người ta còn phủ lên trên bề mặt nhựa polycarbonate 1 số vật liệu khác nhằm nâng cao tính năng, tối ưu hóa tác dụng lúc vận dụng vào thực tiễn.
 
